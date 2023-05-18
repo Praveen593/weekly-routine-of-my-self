@@ -1,0 +1,1 @@
+# weekly-routine-of-my-self
